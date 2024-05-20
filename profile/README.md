@@ -48,6 +48,7 @@ Thanks,
 
 Nathaniel Mina
 Owner/CEO @ Pure Computers
+Feel Free to [Email](mailto:nate@purecomp.net) me with any tech questions or computer help you may need
 <!--
 
 **Here are some ideas to get you started:**
