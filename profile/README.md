@@ -1,5 +1,5 @@
-## Hi there 👋
-Welcome!                 
+# Hi there 👋
+## Welcome To [Pure Computers](www.PureComputers.Net)!                 
                
 [Pure Computers](www.PureComputers.Net) is a dynamic small business that will exceed your expectations. We are 
      committed to providing innovative solutions and unparalleled customer service.
