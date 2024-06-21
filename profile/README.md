@@ -42,13 +42,14 @@ Thank you for choosing our company as your partner in technology. We look forwar
        with you to achieve optimal workflows both at home and for your business. 
 
 Find out more at:
-        www.PureComputers.Net
+        Https://P-C.Live
+        Https://www.PureComp.Net
 
 Thanks,
 
 Nathaniel Mina
 Owner/CEO @ Pure Computers
-Feel Free to [Email](mailto:nate@purecomp.net) me with any tech questions or computer help you may need
+Feel Free to [Email](mailto:nate@purecomp.net) [me](Https://P-C.Live/about) with any tech questions or computer help you may need
 <!--
 
 **Here are some ideas to get you started:**
