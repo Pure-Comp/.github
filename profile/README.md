@@ -1,7 +1,7 @@
 # Hi there 👋
 ## Welcome To [Pure Computers](Https://www.PureComp.Net)                 
                
-[Pure Computers](www.PureComputers.Net) is a dynamic small business that will exceed your expectations. We are 
+[Pure Computers](Https://www.PureComp.Net) is a dynamic small business that will exceed your expectations. We are 
      committed to providing innovative solutions and unparalleled customer service.
 
 We have a wide variety of clients examples include:
